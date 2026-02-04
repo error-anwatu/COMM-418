@@ -13,7 +13,7 @@ To Whom it May Concern:
 
 This is a request under the Freedom of Information Act. I request that a copy of the following document(s) be provided to me:<br> 
 
-All application and licensing documents concerning the Alcoholic Beverage and Cannibis Administration (ABCA), located at 899 North Capitol Street, NE, Medical Cannabis: Suite 4200-A, Alcohol: Suite 4200-B, Washington, DC 20002, in the years 2024-2025. The ABCA recently closed retailer storefronts and suspended several alcohol licenses.
+All application and licensing documents concerning the Alcoholic Beverage and Cannabis Administration (ABCA), located at 899 North Capitol Street, NE, Medical Cannabis: Suite 4200-A, Alcohol: Suite 4200-B, Washington, DC 20002, in the years 2024-2025. The ABCA recently closed retailer storefronts and suspended several alcohol licenses.
 
 In order to help determine fees, you should know that I am an individual submitting this request on behalf of my undergraduate journalism course on data-drive journalism. This FOIA request is purely educational, and meant to inform students on the process of submitting a FOIA request, the importance of accessing public records, and understanding how to find information from different sites.
 
